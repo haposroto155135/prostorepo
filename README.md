@@ -1,1 +1,1 @@
-The proliferation of the automobile industry in the 20th century led to increased demand for petroleum-based products, such as asphalt for road construction and gasoline for fueling vehicles, driving economic growth and industrialization.
+Roads in the 18th century were primarily unpaved, consisting of dirt, gravel, or cobblestones, which made travel slow, difficult, and uncomfortable.
