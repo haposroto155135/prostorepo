@@ -1,1 +1,1 @@
-The expansion of colonial empires in the 19th century spurred road construction in colonies and territories, often to facilitate the extraction of natural resources and the movement of troops and supplies.
+The construction of transcontinental highways and national road networks in the 19th century fostered economic integration, regional development, and cultural exchange across diverse landscapes and communities.
