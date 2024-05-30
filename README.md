@@ -1,1 +1,1 @@
-The spread of railroads in the 19th century facilitated the transportation of goods and passengers over long distances, reducing the need for extensive road networks in some areas.
+The development of turnpikes, or toll roads, proliferated in the 19th century, with private companies or local governments collecting fees from travelers to fund road construction and maintenance.
