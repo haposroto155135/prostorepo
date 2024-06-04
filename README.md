@@ -1,1 +1,1 @@
-The construction of the Autobahn in Germany in the 1930s set new standards for modern highway design and engineering, featuring wide lanes, limited access, and high-speed limits, inspiring similar projects worldwide.
+The development of the first traffic signals in the early 20th century improved safety and efficiency at intersections, reducing accidents and congestion on urban roads.
