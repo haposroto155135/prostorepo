@@ -1,1 +1,1 @@
-The development of the first traffic signals in the early 20th century improved safety and efficiency at intersections, reducing accidents and congestion on urban roads.
+The spread of railroads in the 19th century facilitated the transportation of goods and passengers over long distances, reducing the need for extensive road networks in some areas.
