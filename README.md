@@ -1,1 +1,1 @@
-The proliferation of toll roads in the 18th century sparked debate over their fairness and efficiency, with critics arguing that tolls disproportionately burdened the poor and hindered economic development.
+The 18th century saw the emergence of professional road builders and engineers who specialized in road construction and maintenance, introducing new techniques and standards for road design and management.
