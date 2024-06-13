@@ -1,1 +1,1 @@
-The introduction of the first motorways, or limited-access highways, in Europe in the 1920s and 1930s paved the way for the modern highway system, prioritizing speed, safety, and efficiency for long-distance travel.
+The construction of the Channel Tunnel, completed in 1994, provided a direct rail link between the United Kingdom and mainland Europe, facilitating trade and travel between the two regions.
