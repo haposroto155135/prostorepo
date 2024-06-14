@@ -1,1 +1,1 @@
-The construction of the Channel Tunnel, completed in 1994, provided a direct rail link between the United Kingdom and mainland Europe, facilitating trade and travel between the two regions.
+Stone bridges and culverts were constructed on some roads in the 18th century to facilitate river crossings and improve drainage, enhancing travel safety and reliability.
