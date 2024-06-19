@@ -1,1 +1,1 @@
-The 20th century witnessed unprecedented advancements in road infrastructure, with the widespread adoption of asphalt and concrete pavements, providing smoother and more durable surfaces for roads.
+The construction of the Channel Tunnel, completed in 1994, provided a direct rail link between the United Kingdom and mainland Europe, facilitating trade and travel between the two regions.
