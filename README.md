@@ -1,1 +1,1 @@
-In urban areas, streets were often narrow and congested, with pedestrians, carts, and animals competing for limited space, leading to traffic jams and safety hazards.
+The development of the first expressways, or controlled-access highways, in the United States in the mid-20th century provided fast and efficient travel routes for commuters and long-distance travelers alike.
