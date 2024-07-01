@@ -1,1 +1,1 @@
-The expansion of colonial empires in the 19th century spurred road construction in colonies and territories, often to facilitate the extraction of natural resources and the movement of troops and supplies.
+The construction of the Autobahn in Germany in the 1930s set new standards for modern highway design and engineering, featuring wide lanes, limited access, and high-speed limits, inspiring similar projects worldwide.
