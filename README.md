@@ -1,1 +1,1 @@
-The construction of the Autobahn in Germany in the 1930s set new standards for modern highway design and engineering, featuring wide lanes, limited access, and high-speed limits, inspiring similar projects worldwide.
+The development of the first expressways, or controlled-access highways, in the United States in the mid-20th century provided fast and efficient travel routes for commuters and long-distance travelers alike.
