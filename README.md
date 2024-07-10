@@ -1,1 +1,1 @@
-The construction of military roads and strategic transportation routes played a crucial role in military campaigns and logistics during conflicts such as the Napoleonic Wars and the American Civil War.
+The first modern turnpike, the Great North Road in England, was established in the 18th century, featuring improved surfacing and regular maintenance funded by tolls.
