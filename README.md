@@ -1,1 +1,1 @@
-Despite their limitations, 18th-century roads played a crucial role in connecting communities, facilitating trade and travel, and shaping the economic, social, and cultural landscape of the time.
+The rise of tourism in the 19th century, fueled by improvements in transportation and leisure time, created demand for scenic and well-maintained roads in rural and coastal areas.
