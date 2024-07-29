@@ -1,1 +1,1 @@
-The expansion of colonial empires in the 19th century spurred road construction in colonies and territories, often to facilitate the extraction of natural resources and the movement of troops and supplies.
+The development of the interstate highway system in the United States, initiated by President Dwight D. Eisenhower in the 1950s, revolutionized long-distance travel and commerce, connecting cities and regions across the country.
