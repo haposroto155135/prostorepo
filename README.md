@@ -1,1 +1,1 @@
-The width of 18th-century roads varied, with many being narrow and winding, particularly in rural areas, where terrain and property boundaries influenced their layout.
+The rise of urbanization and suburbanization in the 20th century spurred the construction of feeder roads, arterial routes, and ring roads to accommodate increased traffic and population growth in cities and metropolitan areas.
